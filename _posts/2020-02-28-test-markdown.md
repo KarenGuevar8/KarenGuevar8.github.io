@@ -26,7 +26,7 @@ Encebollado
 
 Mi Cancion Favorita es:
 
-![Baladas romanticas](https://youtu.be/QeYK59vx_oE)
+![Baladas romanticas]( https://images.app.goo.gl/exnzfQLeJmQNXpnj7.jpg     )
 
 
 .
