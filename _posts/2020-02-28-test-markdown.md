@@ -24,9 +24,9 @@ Encebollado
 
 ![Encebollado](https://turecetavegana.com/wp-content/uploads/2020/02/Receta-de-encebollado-ecuatoriano-vegano-sin-pescado.jpg)
 
-Mi Cancion Favorita es:
+Mi CArtista Favorita es:
 
-![Baladas romanticas]( https://images.app.goo.gl/exnzfQLeJmQNXpnj7.jpg     )
+![Kanny Garcia]( https://images.app.goo.gl/exnzfQLeJmQNXpnj7.jpg)
 
 
 .
